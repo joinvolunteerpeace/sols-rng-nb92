@@ -1,4 +1,4 @@
-
+custom sol's rng Script is the best sol's rng Script, featuring instant win and auto-sell. Safe and powerful for all your needs.
 
 
 
